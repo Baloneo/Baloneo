@@ -1,1 +1,1 @@
-### I am a big gold in Guangzhou
+### A big gold in Guangzhou
